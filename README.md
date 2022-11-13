@@ -1,3 +1,3 @@
-👋👋👋👋👋👋👋👋👋👋👋👋. 
-👋👋👋hands clap👋👋👋. 
-👋👋👋👋👋👋👋👋👋👋👋👋
+👋👋👋 {HANDS CLAP} 👋👋👋  
+👋👋👋 {HANDS CLAP} 👋👋👋  
+👋👋👋 {HANDS CLAP} 👋👋👋
